@@ -2,6 +2,7 @@
 
 ### This program for CS2 opens up new horizons for players in the world of gaming entertainment. They take gaming to the next level by providing unique features and benefits.
 ### Our program is not just aiming, it is the art of precision that helps every shot be accurate and effective. With it you can increase your chances of winning and feel real power in battles.
+![Без названия (1)](https://github.com/abrikos12133/Undetected-CS2/assets/156725650/33a58e53-2fc1-4ff1-bde5-046373242901)
 
 # Advantage over other programs:
 
